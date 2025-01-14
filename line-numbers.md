@@ -4,9 +4,9 @@
 #### 4
 #### 5 lkdemdfsjhdsghiubhdiuls
 #### 6
-#### 7
+#### 7 I don't like playing Roblox
 #### 8
-#### 9 Github is really good
+#### 9 GITHUB is really AWESOME
 #### 10
 #### 11
 #### 12
